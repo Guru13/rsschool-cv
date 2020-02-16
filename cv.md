@@ -5,7 +5,7 @@
 Belarus, Minsk Judro 69-11
 Phone +375(29)328-54-47
 
-![](https://sun9-55.userapi.com/c621620/v621620335/529a4/Q1_c3b2LT-k.jpg =200x200)
+![](https://sun9-55.userapi.com/c621620/v621620335/529a4/Q1_c3b2LT-k.jpg | width=150)
 
 [GitHub](https://github.com/Guru13) 
 
