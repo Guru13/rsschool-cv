@@ -5,7 +5,7 @@
 Belarus, Minsk Judro 69-11
 Phone +375(29)328-54-47
 
-<img src="https://sun9-55.userapi.com/c621620/v621620335/529a4/Q1_c3b2LT-k.jpg" width=150 height=200 />
+![](https://sun9-37.userapi.com/c204616/v204616243/6d881/Q92CaOXALWE.jpg) 
 
 ## Work experience
 2009 - 2019 Pinsk heating network. Engineer
